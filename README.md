@@ -1,0 +1,3 @@
+- Hello i'm a junior Java developer, i'm interested in Minecraft Modding/Scripting.
+- I'm a nice guy and i'm always welcome to new experiences!
+- If you feel like speaking to somebody hit me up on Discord: businessman zim#5803
